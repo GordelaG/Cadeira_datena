@@ -2,3 +2,5 @@ Eu criei essa cadeira como uma arma para diversão entre amigos no FiveM. A arma
 
 Para mais mods como este acesse:
 https://discord.com/invite/tyKTs4QyYA
+
+You Tube: https://youtu.be/VFrWEmA2ADE
